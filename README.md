@@ -1,2 +1,2 @@
 # WEBlaba1
-Laba po WEBy
+RAMAN ABANOVICH
